@@ -1,2 +1,2 @@
 # Morireoluwa Akinfolarin Samuel
-Our first son naming ceremony on Saturday 7th October, 2017 at Alakia, Ibadan, Oyo State.
+[![Contact me on Codementor](https://www.codementor.io/m-badges/olumidemichaeloyalola/find-me-on-cm-b.svg)](https://www.codementor.io/@olumidemichaeloyalola?refer=badge)
